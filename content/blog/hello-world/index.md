@@ -1,231 +1,31 @@
----
-title: Hello World
-date: "2015-05-01T22:12:03.284Z"
-description: "Hello World"
----
+# Sharing Wife first Time
 
-This is my first post on my new fake blog! How exciting!
+hi this story is 100% real. it occurred concerning a while ago now, when I was 28 as well as the partner 21 had actually commonly talked about meeting someone for some fun, but i never thought it would certainly happen, until one night we were at residence having a drink, searching the web. when she claimed allows satisfy somebody. i was surprised however likewise excited, so we began undergoing the chatroom till we discovered somebody we will certainly call him 'B'(age 32) who appeared great sufficient as well as he had a cam so we knew exactly what he appeared like ...
 
-I'm sure I'll write a lot more interesting things in the future.
+after chating to him for some time on cam and also him exposing himself to me and also my partner, (she exposed herself too ... 36c nice hairless pussy)... my partner claimed to me she would love to meet him now for some fun ... we organized to meet up a hr later.(he lived nearby)... we said our goodbyes online as well as started to prepare ... i was so worried however thrilled at the very same time ... i had no concept just how far my girlfriend wanted to go or what she would do ... when we were ready we satisfied and also left the residence B simply round the edge where we lived ... he picked us up in his automobile ...
 
-Oh, and here's a great quote from this Wikipedia on
-[salted duck eggs](https://en.wikipedia.org/wiki/Salted_duck_egg).
+It was starting to obtain light currently ...(practically 6.00 am) we drove to a peaceful carpark we understood. chatting whilst we drive ... B was asking if we was both up for it ... i claimed yes ... then R replied of course it's just a little fun isn't it ... not long after we came to the parking lot, we parked the auto out of the way, after that B delved into the rear of the cars and truck with R.... i was sitting in the front alone now feeling very anxious my heart pounding. Very transformed on ... then B said so what takes place currently ... I smiled and looked at R, with that R relocated closer to B and also began to massage his cock via his running bottoms.
 
-> A salted duck egg is a Chinese preserved food product made by soaking duck
-> eggs in brine, or packing each egg in damp, salted charcoal. In Asian
-> supermarkets, these eggs are sometimes sold covered in a thick layer of salted
-> charcoal paste. The eggs may also be sold with the salted paste removed,
-> wrapped in plastic, and vacuum packed. From the salt curing process, the
-> salted duck eggs have a briny aroma, a gelatin-like egg white and a
-> firm-textured, round yolk that is bright orange-red in color.
+i could not belive it below i was watching my partner rubbing an unfamiliar people dick and it was the horniest point i have actually ever before seen in my life ... i can see the lump in his trousers growing ... after a few more momments B drew his trousers to expose his semi hard dick ... as R wrapped a hand around B's bare penis he couldn't help however go hard. i asked R was she appreciating herself ... she responded indeed mmmmmmmmmm after that checked out me as well as reduced her lips to his cock as well as started to take it in her mouth ...
 
-![Chinese Salty Egg](./salty_egg.jpg)
+My dick promptly went like rock, it was such a turn on viewing her with anonther mans cock in her mouth, now i had my penis out wanking as i watched ... as she relocated her mouth up and down his cock, licking it as well as sucking on it as she wanked him ... The [Interacial Dick](https://wifesharingvideos.com/interracial/) started to moan with enjoyment ... he reached out and began gropping R via her vest top she carried ... below we were in a carpark with somebody we do not recognize and also im watching my girlfriend suck this person of while he is feeling her up.
 
-You can also write code blocks here!
+It didn't take lengthy of him searching her tits as well as trying to reach her pussy for her to take her top and also bra off and also remove her pants ... there she was currently. tits out (nipple areas like bullets), knickers as well as pants down by her ankle joints, legs spread out as vast as possible,( exposing that lovelt young pussy of hers) regularly drawing fiercly on his dick ... once she took her trousers off, it didn't take him long to function his pass on to her sopping wet pussy, constantly im asking her if she likes drawing B'S penis, she simply mumbles hmmmmmmmmmm it's nice and also grins ...
 
-```js
-const saltyDuckEgg = "chinese preserved food product"
-```
+B's tellin her how good it really feels saying he hasn't had a blowjob or sex of his other half in months ... informing her how excellent she is ... as well as just how wet she feels ... keeping that he starts to put a couple of fingers up her pussy. Below I am urging a stranger to appreciate her. just siiting a number of feet far from him feeling her soaking pussy.(you could hear it squelch as he functioned his fingers in her)... R was enjoying it you might see the method she was drawing on his cock as well as relocating her hips with his fingers ...
 
-| Number | Title                                    | Year |
-| :----- | :--------------------------------------- | ---: |
-| 1      | Harry Potter and the Philosopher’s Stone | 2001 |
-| 2      | Harry Potter and the Chamber of Secrets  | 2002 |
-| 3      | Harry Potter and the Prisoner of Azkaban | 2004 |
+i was getting truly switched on currently seeing her getting felt i informed her to suck on his balls ... she glanced up at me with his dick in her mouth, she looked amazing ... and also began to lick as well as suck among his balls into her mouth, it must of felt excellent since he can just take the satisfaction momentarily after that asked R if he can fuck her ...( at all times thumbing her warm damp inflamed pussy) R stopped sucking his penis and sat up straight and stated no she really did not want to have sex( at all times obtaining fingered)... i claimed i really did not mind (think i was simply getting brought away with the circumstance) however R rehashed that she didn't intend to have sex, she mored than happy playing ...
 
-[View raw (TEST.md)](https://raw.github.com/adamschwartz/github-markdown-kitchen-sink/master/README.md)
+so B just leaned ahead and also started to kiss as well as suck on her nipples while he fingered her ... R seamed to such as the therapy he was offering her due to the fact that she just leaned back as well as enjoyed what B was doing to her, constantly tho she handled to carry on having fun with his balls as well as penis ... a few even more miutes passed ... and also B said he was near to cumming. so R took his cock in her mouth as well as worked in tough as well as fast ... wanking it for all it deserved ... after that B took control of wanking and also when he began to cum R moved out of the way ... fortunate truly as i have never ever sean any person orgasm so much in all my life, hot jets of thick white sperm simply streaming all over, it just kept cumming and cumming out of his dick. when he ended up, it got on the home windows, doors, R was covered in his orgasm, on her legs, stomach and tit. As he got his breath, you could see he enjoyed it, with big smile on his face.
 
-This is a paragraph.
+... R once again leaned forward into his crotch, and also took his conditioning, orgasm covered penis in her mouth, and also sucked him tidy. When she showed up from his dick, the side of her face and also hair was covered in his cum. She looked dirty as well as so hot, B has to of thought the exact same. As he stated to her, there's some on your face, as well as placed his hand on her face to wipe it away, however he chooses to go with a kiss.
 
-    This is a paragraph.
+I thought she would of stopped him, yet she could not wait to lock lips with him, tongues down each others throats, I discovered that equally as sexual, viewing them make out. that's when I watche, wwipe some orgasm from her face, as well as scoop even more of his tummy, as well as pushed his cum covered fingers right up her pussy, without her having any type of concept what he had actually done.
 
-# Header 1
+After they finished kissing and also massaging his cum right into her pussy, everybody calmed down, as well as cleaned themselves up, and also we almost immediatley started the 15 min drive house ... when near our house he thanked us R for a wonderful time as well as we left. Itsnearly 2 years on and also we still stay connected online, but R has been up for meeting him again lately, yet wishes to go all the way and also have a 3sum with im ... i think it will be fantastic but obtained ta surpass the nerves.
 
-## Header 2
 
-    Header 1
-    ========
 
-    Header 2
-    --------
 
-# Header 1
 
-## Header 2
 
-### Header 3
-
-#### Header 4
-
-##### Header 5
-
-###### Header 6
-
-    # Header 1
-    ## Header 2
-    ### Header 3
-    #### Header 4
-    ##### Header 5
-    ###### Header 6
-
-# Header 1
-
-## Header 2
-
-### Header 3
-
-#### Header 4
-
-##### Header 5
-
-###### Header 6
-
-    # Header 1 #
-    ## Header 2 ##
-    ### Header 3 ###
-    #### Header 4 ####
-    ##### Header 5 #####
-    ###### Header 6 ######
-
-> Lorem ipsum dolor sit amet, consectetuer adipiscing elit. Aliquam hendrerit mi posuere lectus. Vestibulum enim wisi, viverra nec, fringilla in, laoreet vitae, risus.
-
-    > Lorem ipsum dolor sit amet, consectetuer adipiscing elit. Aliquam hendrerit mi posuere lectus. Vestibulum enim wisi, viverra nec, fringilla in, laoreet vitae, risus.
-
-> ## This is a header.
->
-> 1. This is the first list item.
-> 2. This is the second list item.
->
-> Here's some example code:
->
->     Markdown.generate();
-
-    > ## This is a header.
-    > 1. This is the first list item.
-    > 2. This is the second list item.
-    >
-    > Here's some example code:
-    >
-    >     Markdown.generate();
-
-- Red
-- Green
-- Blue
-
-* Red
-* Green
-* Blue
-
-- Red
-- Green
-- Blue
-
-```markdown
-- Red
-- Green
-- Blue
-
-* Red
-* Green
-* Blue
-
-- Red
-- Green
-- Blue
-```
-
-- `code goes` here in this line
-- **bold** goes here
-
-```markdown
-- `code goes` here in this line
-- **bold** goes here
-```
-
-1. Buy flour and salt
-1. Mix together with water
-1. Bake
-
-```markdown
-1. Buy flour and salt
-1. Mix together with water
-1. Bake
-```
-
-1. `code goes` here in this line
-1. **bold** goes here
-
-```markdown
-1. `code goes` here in this line
-1. **bold** goes here
-```
-
-Paragraph:
-
-    Code
-
-<!-- -->
-
-    Paragraph:
-
-        Code
-
----
-
----
-
----
-
----
-
----
-
-    * * *
-
-    ***
-
-    *****
-
-    - - -
-
-    ---------------------------------------
-
-This is [an example](http://example.com "Example") link.
-
-[This link](http://example.com) has no title attr.
-
-This is [an example][id] reference-style link.
-
-[id]: http://example.com "Optional Title"
-
-    This is [an example](http://example.com "Example") link.
-
-    [This link](http://example.com) has no title attr.
-
-    This is [an example] [id] reference-style link.
-
-    [id]: http://example.com "Optional Title"
-
-_single asterisks_
-
-_single underscores_
-
-**double asterisks**
-
-**double underscores**
-
-    *single asterisks*
-
-    _single underscores_
-
-    **double asterisks**
-
-    __double underscores__
-
-This paragraph has some `code` in it.
-
-    This paragraph has some `code` in it.
-
-![Alt Text](https://placehold.it/200x50 "Image Title")
-
-    ![Alt Text](https://placehold.it/200x50 "Image Title")
